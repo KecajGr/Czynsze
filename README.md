@@ -1,0 +1,2 @@
+# Czynsze
+Info prg 
